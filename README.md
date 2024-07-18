@@ -1,1 +1,56 @@
 # group5
+# this is the readme file for the group 5 please read the instruction before u work on this project
+# Installation guideline:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# :D
